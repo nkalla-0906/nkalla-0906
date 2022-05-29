@@ -5,7 +5,7 @@
 - 📫 How to reach me - email niveditakalla9@gmail.com
 - 🌻 In my "day job" I work with students in optimising their college applications - increasingly using data.
 - ✨ I am also a newbie yogini who is hoping to progress in my yoga and meditation practise in the time to come. 
-- ☀️Talk to me about dogs, movies, yoga, fitness, K-Dramas, fitness, books, meditation, service design and ofcourse just about everything. 
+- ☀️Talk to me about dogs, movies, yoga, fitness, K-Dramas, fitness, books, meditation, service design and ofcourse just about anything ... for I am deeply curious. 
 
 
 <!---
